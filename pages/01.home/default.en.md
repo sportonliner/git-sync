@@ -13,7 +13,7 @@ process:
 visible: true
 ---
 
-## **What 23 are Steroids bitch? Everything you should know about Anabolic Steroids**
+## **What 234 are Steroids bitch? Everything you should know about Anabolic Steroids**
 
 If you’re keen on working out and trying to gain weight, improve muscle mass, increase tone or reduce body fat, you’ll have no doubt gazed in awe at the physiques of today’s top bodybuilders, actors, top models, and Olympic athletes. And as you start to wonder if that level of perfection is actually possible, you’ll probably look online and find that particular person promoting a natural supplement and claiming it’s all down to a healthy diet.
 
