@@ -13,7 +13,7 @@ process:
 visible: true
 ---
 
-## **What are Steroids bitch? Everything you should know about Anabolic Steroids**
+## **What are Steroids bitch? Everything you should know about Anabolic Steroids qq**
 
 If you’re keen on working out and trying to gain weight, improve muscle mass, increase tone or reduce body fat, you’ll have no doubt gazed in awe at the physiques of today’s top bodybuilders, actors, top models, and Olympic athletes. And as you start to wonder if that level of perfection is actually possible, you’ll probably look online and find that particular person promoting a natural supplement and claiming it’s all down to a healthy diet.
 
@@ -31,9 +31,9 @@ When steroids are used for performance enhancement, anabolic steroids build musc
 
 When beginning steroid cycles and stacks, it is important to consider ways to both maximize the benefits and reduce the likelihood of the androgenic side effects of steroids. This doesn’t mean you need to avoid all androgenic steroids, however you should be careful to balance your stacks in the right way that allows you to reap the anabolic benefits and still minimize any androgenic risks. In order to do that, you need to start by understanding the most popular steroids out there.
 
-There are some widely known methods used when taking steroids, some of which are reported by bodybuilders to have produced better results: 
-* **Steroid Cycles**: Take multiple steroids for a short period of time. Then suddenly stop taking steroids. Then restarting the process. - Cycling allows time for the body get back to normal hormone levels during steroid-free period. 
-* **Stacking**: Mixing injectable steroids and oral steroids to enhance the affects. 
+There are some widely known methods used when taking steroids, some of which are reported by bodybuilders to have produced better results:
+* **Steroid Cycles**: Take multiple steroids for a short period of time. Then suddenly stop taking steroids. Then restarting the process. - Cycling allows time for the body get back to normal hormone levels during steroid-free period.
+* **Stacking**: Mixing injectable steroids and oral steroids to enhance the affects.
 * **Pyramiding**: Increasing doses gradually for 6-12 weeks of cycle, this allows the body acclimatized to high doses of steroids.
 
 ### **Before Anabolic Steroids Use. Steroid Pills and Injects Dosage**
@@ -46,23 +46,23 @@ Spend enough time researching to discover safe steroid stacks and cycle lengths.
 
 Different anabolic steroids produce different side effects and the absolute best way to prevent this is with research and an understanding of any supplements or stacks you may need to counteract the harmful effects. Of course, make sure you stick to the recommended dose and cycle length.
 
-Anabolic steroids are not right for everyone. If you have high blood pressure, high cholesterol, a heart condition, liver problems, kidney problems, or diabetes – do not use these products. 
+Anabolic steroids are not right for everyone. If you have high blood pressure, high cholesterol, a heart condition, liver problems, kidney problems, or diabetes – do not use these products.
 Don’t forget about vitamins, supplements and post cycle therapy – they always will help you to stay healthy, get and save the gains you expect from AAS sycle.
 
 ### **Muscle Gain on Gear. Get the Best Results from Steroid Use**
 
 Thinking of starting your first cycle of steroids? For a first timer this can seem very daunting and the internet is full of complicated information, mostly written by novices themselves. Steroid usage is safe as long as you have done your research and made sure that you know what you’re doing. Make sure you are fully aware of any problems that may occur – it’s not enough to just read the label, although this is a good place to start. There are more things that should be considered and you should make sure you have a clear idea in your head before you start.
 
-Sometimes the information you come across is unreliable. But here are some handy tips for use to help you start off on the right foot: 
-* Be aware that what worked for your gym buddy might not work for you – your body is completely different. Start with beginner steroid cycles and progress from there – don’t jump straight in with a more complex cycle until you know what does and doesn’t work for you. 
-* Have a clear goal in mind and make sure it is achievable – prioritise between gaining strength, adding bulk, reducing body fat and adding definition. Plan your cycle in advance and keep it short (between 6 – 8 weeks) – if your cycle goes beyond 10 weeks you may find that your body has trouble recovering and producing natural testosterone. 
-* Stacking steroids can be an effective way to maximise muscle building – stacking an androgenic steroid with a mild, anabolic steroid can be a good idea as they complement each other. 
-* Don’t take two oral steroids at a time as this can harm your liver – try and stack an injectable steroid with an oral one. 
-* Make sure you give your body enough high-quality protein in order for the steroid to work – protein is the raw material your body needs and is found in eggs, meat, cheese, milk and yoghurt. 
-* Your diet will matter more than ever and you can’t relax and expect steroids to work if you aren’t eating well – consumer 60% of your calorific intake from carbohydrates and 30% from protein. 
-* Eat regularly and aim for about six meals ever day even when you aren’t feeling particularly hungry – and try to keep these meals at the same time of day. 
-* Use supplements and multi-vitamins to help keep your body in top shape – liver support, kidney support and fibre supplements will help keep you healthy. 
-* Get enough sleep (at least eight hours a night) – when taking steroid pills your body needs to recharge at night in order to properly function. 
+Sometimes the information you come across is unreliable. But here are some handy tips for use to help you start off on the right foot:
+* Be aware that what worked for your gym buddy might not work for you – your body is completely different. Start with beginner steroid cycles and progress from there – don’t jump straight in with a more complex cycle until you know what does and doesn’t work for you.
+* Have a clear goal in mind and make sure it is achievable – prioritise between gaining strength, adding bulk, reducing body fat and adding definition. Plan your cycle in advance and keep it short (between 6 – 8 weeks) – if your cycle goes beyond 10 weeks you may find that your body has trouble recovering and producing natural testosterone.
+* Stacking steroids can be an effective way to maximise muscle building – stacking an androgenic steroid with a mild, anabolic steroid can be a good idea as they complement each other.
+* Don’t take two oral steroids at a time as this can harm your liver – try and stack an injectable steroid with an oral one.
+* Make sure you give your body enough high-quality protein in order for the steroid to work – protein is the raw material your body needs and is found in eggs, meat, cheese, milk and yoghurt.
+* Your diet will matter more than ever and you can’t relax and expect steroids to work if you aren’t eating well – consumer 60% of your calorific intake from carbohydrates and 30% from protein.
+* Eat regularly and aim for about six meals ever day even when you aren’t feeling particularly hungry – and try to keep these meals at the same time of day.
+* Use supplements and multi-vitamins to help keep your body in top shape – liver support, kidney support and fibre supplements will help keep you healthy.
+* Get enough sleep (at least eight hours a night) – when taking steroid pills your body needs to recharge at night in order to properly function.
 * Work twice as hard on steroids as you did off them – heavier weights, longer workouts or greater numbers of sets and repetitions. Accept that steroid pills are not magic – if you don’t put in the time and effort, concentrating on your diet and gym efforts, then you’re wasting your money.
 
 ### **Where can I buy Steroids? Anabolic Steroids for Sale Online**
@@ -73,6 +73,6 @@ We supply legal anabolic steroids for women and men from widely known and reputa
 
 The problem you might have already experienced when you buy steroids online is that it is hard to find a reliable anabolic store with quality steroids for sale. There really is no way of knowing what you will receive when you buy anabolic products for the first time from a supplier and you may be throwing your money away or putting your health at risk by not knowing what is in the products that you receive.
 
-We offer you opportunity to check our products when you buy AAS from us to make sure they’re authentic genuine steroids and of good quality. You can do this online once you receive your steroid product from us – go onto the official manufacturer’s website and enter the unique codes that are placed on every item they produce. 
+We offer you opportunity to check our products when you buy AAS from us to make sure they’re authentic genuine steroids and of good quality. You can do this online once you receive your steroid product from us – go onto the official manufacturer’s website and enter the unique codes that are placed on every item they produce.
 
 **Place an order now and one of our managers will call you as soon as possible to help you with your order.**
