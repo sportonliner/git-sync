@@ -1,19 +1,17 @@
 ---
 title: 'Steroids for sale: order online, buy. Anabolic steroids for weight gain - results, effects.'
 published: true
+metadata:
+    description: 'Top anabolic steroids for sale. Buy legit anabolics, PCT or supplementary solutions for the muscle gain by famous manufacturers. Order real steroids with no prescription on steroidline.com'
 menu: Home
 slug: home
-visible: true
-metadata:
-    description: Top anabolic steroids for sale. Buy legit anabolics, PCT or supplementary solutions for the muscle gain by famous manufacturers. Order real steroids with no prescription on steroidline.com
-published: true
 process:
     markdown: true
     twig: false
 visible: true
 ---
 
-## **What are Steroids bitch ? Everything you should know about Anabolic Steroids**
+## **What are Steroids? Everything you should know about Anabolic Steroids**
 
 If you’re keen on working out and trying to gain weight, improve muscle mass, increase tone or reduce body fat, you’ll have no doubt gazed in awe at the physiques of today’s top bodybuilders, actors, top models, and Olympic athletes. And as you start to wonder if that level of perfection is actually possible, you’ll probably look online and find that particular person promoting a natural supplement and claiming it’s all down to a healthy diet.
 
